@@ -1,1 +1,1 @@
-
+https://notebooklm.google.com/notebook/423c6d9b-1c93-4890-97ac-aac7296a619a?_gl=1*xrdyks*_ga*MTE1Nzc0NzQ0My4xNzUyNjA2MzA0*_ga_W0LDH41ZCB*czE3NTI2MDYzMDMkbzEkZzAkdDE3NTI2MDYzMDMkajYwJGwwJGgw&original_referer=https:%2F%2Fnotebooklm.google%23&pli=1
